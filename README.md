@@ -24,8 +24,8 @@
 
 
 ## 🔗 *WhatsApp Link* 🔗
-* 📲 https://wa.me/919021368015?text=Hi
-* 📲 https://wa.me/919699772734?text=Hi
+* 📲 [https://wa.me/919021368015?text=Hi](https://wa.me/919021368015?text=Hi)
+* 📲 [https://wa.me/919699772734?text=Hi](https://wa.me/919699772734?text=Hi)
 
 ## ✅ *Join us on Telegram* ✅
 * [Telegram Group](https://t.me/diplomaprojectss)
